@@ -5,7 +5,7 @@
 💞️ I’m looking to collaborate on innovative projects that make a positive impact.  
 📫 How to reach me: fawino506@gmail.com  
 😄 Pronouns: she/her  
-⚡ Fun fact: I love solving puzzles and enjoy hiking in my free time.  
+⚡ Fun fact: I love solving puzzles and enjoy reading in my free time.  
 
 <!---
 FAITH-ONGUDI-AWINO/FAITH-ONGUDI-AWINO is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
